@@ -1,2 +1,2 @@
-## Estimado colega, soy Aníbal
-y puedes preguntarme lo que quieras sobre Ciencia de Datos ​📈🤔​💡
+## Estimados(as) colegas, soy Aníbal
+y puedes preguntarme lo que quieras sobre Ciencia de Datos. ​📈🤔​💡
